@@ -1,1 +1,1 @@
-Täiesti suva mis ma siia kirjutan vist
+Täiesti suva mis fuck you siia kirjutan vist
