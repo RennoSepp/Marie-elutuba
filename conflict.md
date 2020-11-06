@@ -1,1 +1,1 @@
-Täiesti suva mis ma siia kirjutan vist
+Tender on rahvuslane!
